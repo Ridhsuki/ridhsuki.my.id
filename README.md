@@ -1,0 +1,1 @@
+# ridhsuki.my.id
